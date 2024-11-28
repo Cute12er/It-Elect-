@@ -1,1 +1,1 @@
-Di mo install ag app gi sapo the inconvenience bb
+Di mo install ag app gi sapot ag imong bb
